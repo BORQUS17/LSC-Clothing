@@ -29,7 +29,7 @@ Cześć Mam Do Zaoferowania Nie Dużą Paczke ubrań Dla Frakcji **LSC** Benny's
 - DAMSKĄ BLUZKE
 - DAMSKIE SPODNIE
 
-Paczka Tych ubrań będzie miała Update co około 2 Tygodnie w nowuch wydaniach czyli np. Bluzy Dla Kobiet w Paru sztukach, Bluzy Męskie Pare sztuk, Nowe Bluzki, Nowe Spodnie pare sztuk.
+Paczka Tych ubrań będzie miała Update co około 2 Tygodnie w nowych wydaniach czyli np. Bluzy Dla Kobiet w Paru sztukach, Bluzy Męskie Pare sztuk, Nowe Bluzki, Nowe Spodnie pare sztuk.
 
 [EN]
 # DESCRIPTION
