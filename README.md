@@ -44,6 +44,7 @@ Hi, I have to offer a small package of clothes for the **LSC** Benny's faction, 
 A pack of these clothes will be updated every 2 weeks in new editions, i.e. Sweatshirts for Women in a few pieces, Men's Sweatshirts a few pieces, New Blouses, New Pants a few pieces.
 # # # # # # # # # # # # # # # # #
 Contact Discord: cieniu_02
+# # # #
 Contact Gmail: piotr.ps988@gmail.com
 # # # # # # # # # # # # # # # # #
 - Cena - 40 PLN
